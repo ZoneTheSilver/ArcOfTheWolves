@@ -1,2 +1,2 @@
-# ArcOfTheWolf
-Arc Of The Wolf: A Concept Artbook
+# ArcOfTheWolves
+Arc Of The Wolves: A Concept Artbook
